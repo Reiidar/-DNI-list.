@@ -3,9 +3,7 @@
 feel free to cuddle or hide freely! unless there is "Dni" in my name!!
 Friendly and an extroverted person at most, dont feel shy to interact with me!, Although i MAY be shy, so i expect people to approach me first beforehand. Im always nervous and scared of what people would say to me, so please int with very extreme care ^^
 
-<img width="649" height="648" alt="𖤐" src="https://github.com/user-attachments/assets/c30289a8-de5c-40b2-bf61-d621d7cfc21f" />
-
-<img width="649" height="648" alt="𖤐" src="https://github.com/user-attachments/assets/bc3816c4-cd6f-4aab-aa06-f6de3003f59e" />
+<img width="649" height="648" alt="𖤐" src="https://github.com/user-attachments/assets/fa1998f0-a6c6-4dda-94d6-b1f74e1c6232" />
 
 - #n1flytecestfan!! : D , Bonnie yume, sharing, int freely....i wont bitee smiles
 -dni LARPERS ;-; ewewew
